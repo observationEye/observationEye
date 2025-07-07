@@ -18,4 +18,4 @@ xe/they/he, xe/xem very much more preferred
 
 <p align="center"
 
-![1000006633](https://github.com/user-attachments/assets/e22d9fc0-06ef-43a2-b545-276efd20ee87)
+![1000049848](https://github.com/user-attachments/assets/60648168-73df-49a3-85d2-8fd99eba803a)
