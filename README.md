@@ -1,6 +1,6 @@
 # sacrificialdagger
 ![1000006631](https://github.com/user-attachments/assets/7d0fc6e4-bc7b-4b1f-badc-f223cf508c3c)
- . hello howdy heyhey!! you can call me Azure or Cryst^_^
+ . hello howdy heyhey!! you can call me 2T or Cryst^_^
 
  i love being called Two time so DO call me that:33!! Elliot heavy int
 
@@ -18,6 +18,8 @@ xe/they/he, xe/xem very much more preferred
 
 🚫 . online (sometimes we are offtab so slow reply.)
 
-<p align="center"
+ME AND MY GF I LOVEE MY GF SPAWN SAVEME
 
-![1000050126](https://github.com/user-attachments/assets/f4c8a121-5808-46c0-b49a-58d47b0b8503)
+<p align="center"
+![1000050167](https://github.com/user-attachments/assets/f3049687-4edd-4ad6-bde0-2c04e11624bc)
+
