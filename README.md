@@ -1,8 +1,8 @@
 # sacrificialdagger
 ![1000006631](https://github.com/user-attachments/assets/7d0fc6e4-bc7b-4b1f-badc-f223cf508c3c)
- . hello howdy heyhey!! you can call me 2T or Cryst^_^
+ . hello howdy heyhey!! you can call me 2T / Azure or Cryst^_^ or all of them idk what i go by man 
 
- i love being called Two time so DO call me that:33!! Elliot heavy int
+ Elliot heavy int
 
 int with me please i dont bite, i love making new friends! c+h VERY encouraged, c+h comf, cudpile freely, usually nv ![1000006632](https://github.com/user-attachments/assets/a6aedf6f-e1d4-4b24-abb7-c2b02664c739)
 
