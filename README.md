@@ -28,11 +28,9 @@ my gf gorgeous arts<3
 ![1000036186](https://github.com/user-attachments/assets/ac2f9199-7fd6-4669-855d-fd1b56618f31)
 ![1000042654](https://github.com/user-attachments/assets/a865807b-e35e-4a0d-943a-a8748d9f2d35)
 ![1000045336](https://github.com/user-attachments/assets/753c33e1-c2ff-448d-8743-1aa37738b473)
-
 my art imo azuretimer.
-![1000046018](https://github.com/user-attachments/assets/ce542aa4-a2af-434a-9278-77aa39f17a5f)
 
-me n him real
+![1000046018](https://github.com/user-attachments/assets/ce542aa4-a2af-434a-9278-77aa39f17a5f)
 ![1000048729](https://github.com/user-attachments/assets/32cfb1ff-752b-458b-943f-47986954e08d)
 ![1000050406](https://github.com/user-attachments/assets/2af54165-80c5-40e1-ab6f-e0ef40d48fed)
 ![1000050405](https://github.com/user-attachments/assets/78a3263b-5304-4f1d-8f54-1bfef4bc71fe)
