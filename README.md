@@ -22,8 +22,11 @@ ME AND MY GF REAL
 ![1000050403](https://github.com/user-attachments/assets/b24e5646-d888-4d4e-9299-02d199af79ef)
 ![1000050126](https://github.com/user-attachments/assets/bd78cba9-f0b1-4017-bb34-812b014737d9)
 ![1000051055](https://github.com/user-attachments/assets/8dd26df4-e3b1-471e-b5c2-48a5bdd27d28)
+![1000007061](https://github.com/user-attachments/assets/76856305-fecb-487e-aa9e-41f71b5723ba)
+![1000007064](https://github.com/user-attachments/assets/bf96d205-3fce-4a2e-a869-fcf83502bcb1)
 
-these 4 arts credited 2 the rightful owners!(and soybean mentioned)
+
+these arts credited 2 the rightful owners!(and soybean mentioned)
 
 my gf gorgeous arts<3
 ![1000036185](https://github.com/user-attachments/assets/e8a6d035-f053-46e8-b3e8-24ebb87bf93e)
