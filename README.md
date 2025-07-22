@@ -4,9 +4,9 @@
 
 int with me please i dont bite, i love making new friends! c+h VERY encouraged, c+h comf, cudpile freely, usually nv ![1000006632](https://github.com/user-attachments/assets/a6aedf6f-e1d4-4b24-abb7-c2b02664c739)
 
-kinshift, genderfluid, lesbian
+kinshift, bigender, masc lesbian
 
-xe/they/he, xe/xem very much more preferred
+all prns but xe/xem very much more preferred
 
 <p align="center"
   
