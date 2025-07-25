@@ -1,6 +1,6 @@
 # botanistritual
 ![1000006631](https://github.com/user-attachments/assets/7d0fc6e4-bc7b-4b1f-badc-f223cf508c3c)
- . hello howdy heyhey!! you can call me 2T / Azure, Cryst or Seven or all of them idek man
+ . hello howdy heyhey!! you can call me 2T / Azure, Cryst or Seven or all of them idek man, i like being called by my kins^p^
 
 int with me please i dont bite, i love making new friends! c+h VERY encouraged, c+h comf, cudpile freely, usually nv ![1000006632](https://github.com/user-attachments/assets/a6aedf6f-e1d4-4b24-abb7-c2b02664c739)
 
@@ -24,6 +24,7 @@ ME AND MY GF REAL
 ![1000051055](https://github.com/user-attachments/assets/8dd26df4-e3b1-471e-b5c2-48a5bdd27d28)
 ![1000007061](https://github.com/user-attachments/assets/76856305-fecb-487e-aa9e-41f71b5723ba)
 ![1000007064](https://github.com/user-attachments/assets/bf96d205-3fce-4a2e-a869-fcf83502bcb1)
+![1000007084](https://github.com/user-attachments/assets/23c9ab5f-39a7-4a98-913d-76b1383f3651)
 
 
 these arts credited 2 the rightful owners!(and soybean mentioned)
