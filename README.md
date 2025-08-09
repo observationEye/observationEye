@@ -6,7 +6,7 @@ LOVE my gorgeous gf my wife my everythign ILLALAALOVEEE MY BABY
 
 int with me please i dont bite, i love making new friends! c+h VERY encouraged, c+h comf, cudpile freely, usually nv ![1000006632](https://github.com/user-attachments/assets/a6aedf6f-e1d4-4b24-abb7-c2b02664c739)
 
-kinshift, bigender, masc bisexual
+kinshift, genderfluid, masc bisexual
 
 all prns but xe/xem very much more preferred
 
