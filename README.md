@@ -6,7 +6,6 @@ we see ourselve as charecters rather then one self, we gen dont know who we r an
 
 azuretime is a huge comfort ship DONT PLAY. WE LOVE THEM TOO MUCH U GUYS DONT UNDERSTAND. 
 
-LOVE my gf!!
 
 int with me please i dont bite, i love making new friends! c+h VERY encouraged, c+h comf, cudpile freely, usually nv ![1000006632](https://github.com/user-attachments/assets/a6aedf6f-e1d4-4b24-abb7-c2b02664c739)
 
@@ -22,10 +21,7 @@ all prns but xe/xem very much more preferred
 
 🚫 . online (sometimes we are offtab so slow reply.)
 
-![1000007218](https://github.com/user-attachments/assets/642f418a-bbe0-4211-91b3-9e3d9671821d)
-
-
-
+![1000007768](https://github.com/user-attachments/assets/485eb9f3-15c5-40b1-b595-ed2582341dbf)
 
 
 
