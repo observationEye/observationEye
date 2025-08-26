@@ -2,7 +2,7 @@
 ![1000006631](https://github.com/user-attachments/assets/7d0fc6e4-bc7b-4b1f-badc-f223cf508c3c)
  . hello howdy heyhey!! you can call me 2T / Azure, Cryst or Seven or all of them idek man, i like being called by my kins^p^
 
-we see ourselve as charecters rather then one self, we gen dont know who we r anymore lowkey its corny ik:/
+we see ourselve as charecters rather then one self, lowkey its corny ik:/
 
 azuretime is a huge comfort ship DONT PLAY. WE LOVE THEM TOO MUCH U GUYS DONT UNDERSTAND. 
 
