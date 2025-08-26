@@ -20,8 +20,8 @@ all prns but xe/xem very much more preferred
 
 🚫 . online (sometimes we are offtab so slow reply.)
 
-![1000007768](https://github.com/user-attachments/assets/485eb9f3-15c5-40b1-b595-ed2582341dbf)
 
+![1000055934](https://github.com/user-attachments/assets/d2f4cc9c-a5cd-473c-994a-e31e76127358)
 
 
 <p align="center"
